@@ -1,0 +1,1 @@
+# hidemasa-shiseido.github.io
